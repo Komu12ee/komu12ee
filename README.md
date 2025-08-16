@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **sahukomendra721@gmail.com** For Collaboration/Project or 
 
 Stay updated with the latest post and projects by visiting to my linkedin .
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/www.linkedin.com/in/komendrasahu) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:sahukomendra721@gmail.com) 
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/komendrasahu)
 
 
 
